@@ -1,4 +1,4 @@
-### hey, I'm Rishabh 👋
+### Hey, I'm Rishabh 👋
 
 Engineer by degree. Builder by obsession. Based in Schweinfurt, Germany.
 
